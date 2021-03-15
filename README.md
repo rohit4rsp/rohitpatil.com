@@ -3,4 +3,4 @@
 
  hey! welcome to my portfolio, its coming soon.
 
- i am learning
+ i am learning. beggining a journey.
